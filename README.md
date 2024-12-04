@@ -5,7 +5,7 @@
 
 
 
-FL Studio (FruityLoops) is a digital audio workstation (DAW) developed by Image-Line. It is widely used for music production, offering a range of features such as a powerful step sequencer, piano roll, and a variety of virtual instruments and effects. FL Studio supports multi-track recording, audio editing, and MIDI composition. It is known for its user-friendly interface, intuitive workflow, and flexibility, making it popular among both beginners and professional music producers in genres like electronic, hip-hop, and pop music. The software is available for Windows and macOS.
+FL Studio  is a digital audio workstation (DAW) developed by Image-Line. It is widely used for music production, offering a range of features such as a powerful step sequencer, piano roll, and a variety of virtual instruments and effects. FL Studio supports multi-track recording, audio editing, and MIDI composition. It is known for its user-friendly interface, intuitive workflow, and flexibility, making it popular among both beginners and professional music producers in genres like electronic, hip-hop, and pop music. The software is available for Windows and macOS.
 
 ![](https://github.com/Danni91/FL-Studio-crack-full-version-download-/blob/main/FL.png)
 
